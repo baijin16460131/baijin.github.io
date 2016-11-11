@@ -1,0 +1,2 @@
+# baijin.github.io
+résumé
